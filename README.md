@@ -1,1 +1,1 @@
-# Mix-of-Show
+# Mix-of-Show Project Page
